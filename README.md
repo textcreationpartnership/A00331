@@ -36,9 +36,13 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A dialoge or communication of two persons deuysyd and set forthe in the late[n] tonge, by the noble 
+Effigiem Desiderij tibj Sculptor ErasmiExprimit; Ingenium, Scripta diserta suum
+1. To the reder.
+
 #####Body#####
-A dialoge or communication of two persons deuysyd and set forthe in the late[n] tonge, by the noble 
+
+1. ¶A pylgremage, for pure deuocyō.
+
 **Types of content**
 
   * There are 331 **drama** parts! This is **prose drama**.
